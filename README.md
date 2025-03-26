@@ -8,6 +8,6 @@ It involves adding the following details:
 5. Checkbox-"Remember me".
 6. At the end we will get receipt of flight booked.
    <img width="960" alt="image" src="https://github.com/user-attachments/assets/d7f915b0-f2ca-4549-8cd3-f216e832602a" />
-https://somup.com/cTeO1xscnx
 
+https://go.screenpal.com/watch/cTeO1uniwEu
 
